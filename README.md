@@ -1,2 +1,1 @@
-# discordbot
-joey is gay
+joey is hella gay
